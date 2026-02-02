@@ -1,5 +1,10 @@
 ## Hi there 👋
 
+# Mentally unstable Minecraft and Genshin player and cat lover,
+
+Check out this shyte i made
+![the truth](assets/meme.png)
+
 <!--
 **l0wkn1ght/l0wkn1ght** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
